@@ -10,7 +10,9 @@ https://drive.google.com/file/d/1N-IDitnajJuUJfs8aSRfDF6uTEY6CJfe/view?usp=shari
 
 # Videos de la práctica 1
 Ejercicio 1: https://drive.google.com/file/d/1eCr_E3w4NJgJxSXdobdHNnzLsvcvZail/view?usp=sharing
+
 Ejercicio 2: https://drive.google.com/file/d/1ohPxUTEsH7H3jRW4IlL2xSP6K6wTVDMV/view?usp=sharing
+
 Ejercicio 3: https://drive.google.com/file/d/1QklEcFx6oU1k_4GAR-p1gH1StduooDNF/view?usp=sharing
 
 # video de la práctica 2
